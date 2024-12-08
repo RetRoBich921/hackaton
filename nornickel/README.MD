@@ -1,6 +1,6 @@
 ССЫЛКА НА ВИДЕО ДЕМО РАБОТЫ ПРОЕКТА:
 
-https://youtu.be/CY5cf987srk
+https://youtu.be/i7mqUOjV_w0
 
 
 
